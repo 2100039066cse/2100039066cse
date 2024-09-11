@@ -18,7 +18,7 @@
   
 - 📫 How to reach me: **2100039066cse.r@gmail.com**
   
-- 📄 Know about my experiences: [My Resume](file:///C:/Users/Asus/Downloads/SURYA%20NARAYANA%20RESUME.pdf%20(2).pdf)
+- 📄 Know about my experiences: file:///C:/Users/Asus/Downloads/SURYA%20NARAYANA%20RESUME.pdf%20(3).pdf
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
