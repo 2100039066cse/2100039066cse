@@ -18,7 +18,7 @@
   
 - 📫 How to reach me: **2100039066cse.r@gmail.com**
   
-- 📄 Know about my experiences: [https://rahuldkjain.github.io/gh-profile-readme-generator/](https://rahuldkjain.github.io/gh-profile-readme-generator/)
+- 📄 Know about my experiences: [https://app.luminpdf.com/viewer/66e1d55b2422b84161153dcd](https://app.luminpdf.com/viewer/66e1d55b2422b84161153dcd)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
