@@ -18,7 +18,7 @@
   
 - 📫 How to reach me: **2100039066cse.r@gmail.com**
   
-- 📄 Know about my experiences: file:///C:/Users/Asus/Downloads/SURYA%20NARAYANA%20RESUME.pdf%20(3).pdf
+- 📄 Know about my experiences: [https://rahuldkjain.github.io/gh-profile-readme-generator/](https://rahuldkjain.github.io/gh-profile-readme-generator/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
