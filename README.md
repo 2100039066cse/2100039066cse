@@ -8,11 +8,11 @@
 
 
 
-- 🔭 I’m currently working on **Garbage Management**
+- 🔭 I’m currently working on **Movie Universe**
 
 - 🌱 I’m currently learning **Java Script**
 
-- 👨‍💻 All of my projects are available at [xyz](xyz)
+
   
 - 💬 Ask me about **Java, Python, and Web Development**
   
