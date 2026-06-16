@@ -16,7 +16,7 @@
   
 - 💬 Ask me about **Java, Python, and Web Development**
   
-- 📫 How to reach me: **2100039066cse.r@gmail.com**
+- 📫 How to reach me: **suryand.288@gmail.com**
   
 - 📄 Know about my experiences: [https://app.luminpdf.com/viewer/66e1d55b2422b84161153dcd](https://app.luminpdf.com/viewer/66e1d55b2422b84161153dcd)
 
